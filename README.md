@@ -1,2 +1,3 @@
-# Troll-Stuff
-Just Some Notepad Things :)
+# [ THIS IS ONLY NOTEPAD THINGS ALL MADE IN NOTEPAD ]
+
+# Being Developed..
